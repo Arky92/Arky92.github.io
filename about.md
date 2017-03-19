@@ -12,4 +12,4 @@ If you need help or if you want to help, contact me
 
 ### Contact me
 
-[email@domain.com](mailto:arky92@protonmail.com)
+[arky92@protonmail.com](mailto:arky92@protonmail.com)
