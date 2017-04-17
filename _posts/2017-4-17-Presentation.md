@@ -12,6 +12,5 @@ I will post spoilers of projects on instagram, and when I'll finish it there wil
 so, follow me on instagram too!
 
 Instagram: arky_92
-Mail: arky92@protonmail.com
 
 Links in the footer.
